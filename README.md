@@ -2,10 +2,10 @@
 
 ## I'm an Engineer, Learner, and Developer!!
 
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to read manga and solving coding puzzles
+- 🌱 I’m currently learning everything 🤣.
+- 👯 I’m looking to collaborate with other content creators.
+- 🥅 2022 Goals: Enter into an IT development Career and also to Contribute to Open Source Projects.
+- ⚡ Fun fact: I love to read manga and solving coding puzzles.
 
 ### Connect with me:
 
