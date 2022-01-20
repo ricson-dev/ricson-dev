@@ -1,6 +1,6 @@
 ### Hi there, I'm Richard 👋 
 
-## I'm an Engineer, Learner, and Developer!!
+## I'm an Engineer and Learner!!
 
 - 🌱 I’m currently learning everything 🤣.
 - 👯 I’m looking to collaborate with other content creators.
