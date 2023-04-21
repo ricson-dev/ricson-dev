@@ -4,8 +4,8 @@
 
 - 🌱 I’m currently learning everything 🤣.
 - 👯 I’m looking to collaborate with other content creators.
-- 🥅 2022 Goals: Enter into an IT development Career and also to Contribute to Open Source Projects.
-- ⚡ Fun fact: I love to read manga and solving coding puzzles.
+- 🥅 2023 Goals: Enter into an IT development Career and also to Contribute to Open Source Projects.
+- ⚡ Fun fact: I love to keep updated with the upcoming trends in IT
 
 ### Connect with me:
 
